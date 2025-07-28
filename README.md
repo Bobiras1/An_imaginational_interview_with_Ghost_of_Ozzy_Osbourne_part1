@@ -1,0 +1,1 @@
+All income from this program which is a simple hello world type of program written in swift programming language will be given to charity. it's not a commercial program, I just feel sad, grief, and a feeling I must honour Ozzy Osbourne's legacy. I'll repeat--> income from this program(if there will be any) will be given to charity. 
